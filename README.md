@@ -1,1 +1,1 @@
-# biose-ales2024
+# biosenales2024
